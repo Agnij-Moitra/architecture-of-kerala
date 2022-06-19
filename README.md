@@ -12,3 +12,7 @@
 9. https://miro.medium.com/max/1280/0*cwrY4-NrnFLbRmUW.jpg
 10. https://miro.medium.com/max/1280/0*NhgkgQaBFTzIbWhd.jpg
 11. https://miro.medium.com/max/1280/0*alCCBXaClPV9KdNP.jpg
+12. https://miro.medium.com/max/1280/0*O6a5EMi8moWb9YBr.jpg
+
+## Ciatation
+1. https://medium.com/@paradiseholidays/23-rich-traditional-architectural-wonders-of-kerala-2f264c50a507
